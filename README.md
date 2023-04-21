@@ -18,17 +18,17 @@
 - - - -
 #### Customer Service (Please open in browser)
 
-**:speech_balloon: [Live Chat（reply within mins）](https://lets-contact.onelink.me/0dzS/9tj7vfv1)**
+**:speech_balloon: [Live Chat（reply within mins）](https://u.z8n.net/AHbQ0a)**
 
 **:e-mail: [Email（reply within mins）](mailto:letsvpn@rbox.me)**
 
 - - - -
 #### Follow us @LetsVPN
-**:couple: [Facebook](https://lets-contact.onelink.me/0dzS/x5x4mc59)** 
+**:couple: [Facebook](https://www.facebook.com/letsvpn/)** 
 
-**:camera: [Instagram](https://lets-contact.onelink.me/0dzS/96bhdw1y)**
+**:camera: [Instagram](https://www.instagram.com/letsvpn/)**
 
-**:bird: [Twitter](https://lets-contact.onelink.me/0dzS/50o50pw1)** 
+**:bird: [Twitter](https://twitter.com/letsvpn)** 
 
-**:airplane: [Telegram](https://lets-contact.onelink.me/0dzS/v56y8i6i)**
+**:airplane: [Telegram](http://t.me/letsvpn11)**
 ###
