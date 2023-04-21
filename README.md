@@ -18,7 +18,7 @@
 - - - -
 #### Customer Service (Please open in browser)
 
-**:speech_balloon: [Live Chat（reply within mins）](https://u.z8n.net/AHbQ0a)**
+**:speech_balloon: [Live Chat（reply within mins）](https://a.z8n.net/EvUHX1)**
 
 **:e-mail: [Email（reply within mins）](mailto:letsvpn@rbox.me)**
 
